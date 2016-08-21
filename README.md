@@ -1,2 +1,3 @@
 # hello-world
-just another repository
+hello good people of earth,
+shorishafull here, i like to help people in need.
